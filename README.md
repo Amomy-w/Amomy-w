@@ -26,6 +26,6 @@ I'm Currently Learning Front-End Development and am willing to contribute furthe
 3. Was qualified for BigganUthsob(National) and got placed 9th.
 
 🌠 Fun Fact:
-1. I am an ISTP type of person.
-2. I like cats and birds.
-3. I don't have a gallbladder.
+1. I am an ISTP type of person. 🙆
+2. I like cats and birds. 🐦
+3. I don't have a gallbladder. 💉
