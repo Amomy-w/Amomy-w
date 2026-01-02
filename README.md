@@ -28,4 +28,4 @@ I'm Currently Learning Front-End Development and am willing to contribute furthe
 🌠 Fun Fact:
 1. I am an ISTP type of person.
 2. I like cats and birds.
-3. I like winter.
+3. I don't have a gallbladder.
